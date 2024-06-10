@@ -1,6 +1,6 @@
 # 💫 About Me:
 
-I m Awe Jacob a Software Developer, Educator and Cybersecurity Enthusiast
+I'm Awe Jacob a Software Developer, Educator and Cybersecurity Enthusiast
 
 
 ## 🌐 Socials:
